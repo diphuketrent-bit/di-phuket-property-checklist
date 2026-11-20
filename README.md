@@ -1,0 +1,1 @@
+# di-phuket-property-checklist
